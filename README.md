@@ -1,1 +1,2 @@
-# Caracterizaci-n-econ-mica-de-las-industrias-derivadas-de-la-agricultura
+# Caracterización-económica-de-las-industrias-derivadas-de-la-agricultura
+Las industrias que acabamos de describir en la forma que corresponde a este capítulo, poseen la característica que por su intermedio el pasaje de la agricultura a la industria se realiza de manera más directa e inmediata y que la vinculación entre ambas es, dentro de la estructura argentina, más estrecha, por-que en mayor extensión que las otras se nutre de la materia prima nacional; ellas conservan un cierto resabio agrícola derivado del hecho que algunos establecimientos como los azucareros por ejemplo, poseen sembrados en extensión suficiente para abastecer una fracción de su consumo.
